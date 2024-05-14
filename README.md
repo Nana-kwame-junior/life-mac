@@ -1,1 +1,1 @@
-# life-mac
+# Lifemac-Africa website
